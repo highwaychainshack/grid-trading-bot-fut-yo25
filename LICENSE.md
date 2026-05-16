@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with grid trading bot for futures rare Algorithm | auto-leverage & backtesting, the #1 grid trading bot for futures. Includes auto-leverage and backtesting
 
 
 
